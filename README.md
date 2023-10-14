@@ -1,2 +1,2 @@
 # Resolusi
-Rencana untuk kedapannya
+Rencana untuk kedepannya
